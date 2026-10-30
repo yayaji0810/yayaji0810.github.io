@@ -1,0 +1,1 @@
+# yayaji0810.github.io

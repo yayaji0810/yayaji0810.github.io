@@ -1,1 +1,3 @@
-# yayaji0810.github.io
+#Yaya Ji
+Student
+AI major
